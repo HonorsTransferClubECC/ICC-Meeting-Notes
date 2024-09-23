@@ -39,7 +39,17 @@ remember to collect business cards
 name: Sandy Mitchell
 budget request form open at 1 pm on engage
 
+# Meeting Two 
+Xicana exhibit in old art gallery; 62 artists of different mediums; about female empowerment. Remember to get card 4247891788 art director
 
+
+Finance committee -> thursday 2-3 comms 109; going over movie night --> speech on why they're interested
+club insta pages -> run by one student and an advisor; each post needs to be approved by an advisor
+email iccpublicrelations@elcamino.edu to set up plans/photos for any events a few weeks ahead
+tell them if we want a repost through the icc instagram
+icc admin info: 3 tardies = absence; 3 emergency absences (like you get hit by a bus or your pet ant dies) atran@elcamino.edu --> accounting help
+thursday -> icc office; revised constitution 
+club training (october 2-12) -> get an email about it
 
 
 
