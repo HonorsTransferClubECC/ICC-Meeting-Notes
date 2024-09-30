@@ -52,6 +52,41 @@ thursday -> icc office; revised constitution
 club training (october 2-12) -> get an email about it
 
 
+# Meeting three
 
+math club, barkada club, and consulting club approved
+
+ICC training:
+```
+Good evening everyone, 
+
+I hope this message finds you well. My name is Rica Kotani, and I am the Director of Club Support for ICC. I am pleased to inform you that we will be hosting ICC Training Workshops starting next week. These workshops are designed to provide important information on topics such as Inter-Club Council, club policies, finance guidelines, Engage, and much more. The scheduled workshops are as follows:
+
+Finance Handbook Workshop Presented by Zain Abbas & Gracia Lopez
+Date: 10/2, 11:00 AM - 12:00 PM in COMS 109
+
+Club Organization Handbook Workshop Presented by Tyler Bornio and Eddie Ekeroma
+Date: 10/4, 10:00 AM - 11:00 AM in COMS 102 (ICC Office)
+
+Robert's Rules Workshop Presented by Kelly Nguyen and Cameron Sachar
+Date: 10/7, 11:20 AM - 12:00 PM in Distance Education (Library 166)
+
+Engage Workshop Presented by Rica Kotani and Davon Dorsey
+Date: 10/7, 1:00 PM - 2:00 PM in Distance Education (Library 166)
+
+Constitution and By-Laws Workshop Presented by Hyeryn(Lynn) Kim & Sicheng(Nelson) Liu
+Date: 10/11, 2:00 PM- 3:00 PM in COMS 109 
+
+If you are unable to attend these workshops, we will have additional online workshops via Zoom. The dates and times will be provided soon. 
+
+Please let me know if you have any questions!
+
+Best regards,
+Rica Kotani | she/her
+Director of Club Support
+Inter-Club Council
+```
+
+Movie night october 17th from 6-9pm east dining hall 1000 dollar budget approved
 
 
