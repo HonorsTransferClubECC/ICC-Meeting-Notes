@@ -100,6 +100,17 @@ There's a bunch of events where people can get free stuff for voting. They're ru
 24th october --> homecoming (outside comms 109) 6pm - 9pm
 race with bandanas tied to feet for halftime show --> also prize money
 
+Black student union president wants to run a basketball game or talent show
+
+black student club willing to collaborate with any clubs
+computer science having first info meeting this thursday
+horror society meeting this thursday
+
+blood drive tomorrow for aso student services 11 am - 2 pm
+finance meeting aso comms 109 1-2 tomorrow
+
+
+
 
 
 
