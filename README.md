@@ -87,6 +87,20 @@ Director of Club Support
 Inter-Club Council
 ```
 
+
+
 Movie night october 17th from 6-9pm east dining hall 1000 dollar budget approved
+
+
+# Meeting three
+
+There's a bunch of events where people can get free stuff for voting. They're running an ICC challenge to get people to vote and if we complete it, they'll throw us a party. Gave us cards to give out at meetings with links to register to vote.
+
+23 of october --> kickball (time undecided -> in afternoon "most likely")
+24th october --> homecoming (outside comms 109) 6pm - 9pm
+race with bandanas tied to feet for halftime show --> also prize money
+
+
+
 
 
