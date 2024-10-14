@@ -109,6 +109,38 @@ horror society meeting this thursday
 blood drive tomorrow for aso student services 11 am - 2 pm
 finance meeting aso comms 109 1-2 tomorrow
 
+# Meeting Four
+
+ICC Agenda: https://go.boarddocs.com/ca/ecccd/Board.nsf/vpublic?open
+
+Oct 17 --> Voluteering during great shakeout
+
+Events
+Nov 6 --> 10 AM - 12:30 PM; Pancakes with President Thames (Celebrating National First Gen Day) [Front of Library Lawn]
+Nov 7 --> 10AM - 2PM (Mental Wellness Day). Campus Enrichment (Therapy dogs, Snacks, Bubbles, etc) [Front of Library Lawn]
+On Halloween --> Current Time Window (12-5 (Can Change)): Horror Fest (Pictures, Catering from Canes, Maybe Halloween Costume Contest) [East Dining Hall]
+
+Data Sci Club Approved
+
+Oct 23 (3-5pm) --> Homecoming kickball event replaced with dodgeball (Canes Catering for Food) [Meet at Murdock Stadium]
+Oct 24 (6-9pm) --> Dance held next Thursday (6-9pm). [East Dining Room]
+Bandana Race (Able to make teams) Form is on Microsoft Teams ICC Channel
+
+# ICC Requesting all clubs to make a club email.
+
+ASO Event:
+Oct 24 (12:30-3:30)
+Have club members check in at Library Lawn or Collaboration Room.
+Learn about upcoming election. Food available.
+
+Collaboration Room Presentation
+(1-2PM)
+
+
+
+
+
+
 
 
 
