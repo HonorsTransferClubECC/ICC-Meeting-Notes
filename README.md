@@ -148,7 +148,9 @@ Send a request for an icc email if we don't have one to director of club support
 Nov 8th peninsula community church, corral club variety show
 open mic night on society of music club instagram (october 29th and 30th)
 ASO and ICC events this week (homecoming :D)
-
-
+12-3 lobby event (oct 24th) if we get 100 club members to show up then we get a party --> library lawn
+event requests need to go through engage (off/on campus)
+if we want to get food over $500 we have to fill out a form with pacific dining
+check Teams for events information
 
 
