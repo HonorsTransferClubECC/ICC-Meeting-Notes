@@ -126,7 +126,7 @@ Oct 23 (3-5pm) --> Homecoming kickball event replaced with dodgeball (Canes Cate
 Oct 24 (6-9pm) --> Dance held next Thursday (6-9pm). [East Dining Room]
 Bandana Race (Able to make teams) Form is on Microsoft Teams ICC Channel
 
-# ICC Requesting all clubs to make a club email.
+## ICC Requesting all clubs to make a club email.
 
 ASO Event:
 Oct 24 (12:30-3:30)
@@ -137,12 +137,17 @@ Collaboration Room Presentation
 (1-2PM)
 
 
+# Meeting Five
 
-
-
-
-
-
+go to asopresident@elcamino.edu for any campus concerns
+Fill out form for discord management (i think it's on microsoft teams?)
+east dining hall 6-9pm homecoming
+Dodgeball moved to softball stadium
+Signups on teams
+Send a request for an icc email if we don't have one to director of club support
+Nov 8th peninsula community church, corral club variety show
+open mic night on society of music club instagram (october 29th and 30th)
+ASO and ICC events this week (homecoming :D)
 
 
 
