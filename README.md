@@ -153,4 +153,32 @@ event requests need to go through engage (off/on campus)
 if we want to get food over $500 we have to fill out a form with pacific dining
 check Teams for events information
 
+# Meeting Six
+
+Outreach College Night
+Desc: Propsective Students come on campus
+Great way for us to promote our club to future students.
+Date: Unknown further information on email
+
+Horror Fest 3-6pm
+Location: East Dining Room
+Costume Contest for Clubs:
+Categories:
+Scariest:
+Funniest:
+Group:
+Most Creative:
+Prize: $100 each category
+
+Thursday
+Trick or Treat w/Friends
+1/5 giftcards
+Trick or treat on campus (Warrior Welcome Center, EOPS, etc). 8-5
+
+De Los Mertes ? Wednesday Library Lawn
+
+
+
+
+
 
