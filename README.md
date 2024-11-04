@@ -178,6 +178,21 @@ Trick or treat on campus (Warrior Welcome Center, EOPS, etc). 8-5
 De Los Mertes ? Wednesday Library Lawn
 
 
+# Meeting Seven
+
+Event to give gifts to kids (in the gym), invited to host an activity for the event
+time? friday december 6th first friday (12-2pm) south gym; volunteer work too
+how to reach out? flyer
+
+Apparently we can get free Canva (talk to ICC about getting added; get club email added --> for club not individual)
+Poetry mixer, talent show, open mic (held by events committee maybe?)
+aso thursdays 1-2 student services building meetings for student advocacy --> pencil room
+therapy dogs nov 7th library lawn 10-12pm
+
+
+
+
+
 
 
 
