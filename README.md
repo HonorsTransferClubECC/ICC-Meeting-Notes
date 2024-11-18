@@ -190,10 +190,18 @@ aso thursdays 1-2 student services building meetings for student advocacy --> pe
 therapy dogs nov 7th library lawn 10-12pm
 
 
+# Meeting Eight
+12/2 to 12/5 8pm-12am for finals madness
+you can join CAUSE if you're a club for an underrepresented group
+open meetings monday 9am-10am in coms 109
+Fall Harvest Festival hosted by basic needs festival so students can get groceries (need assistance organizing cans and with volunteer work)
+monetary incentive for the club with the most volunteers
 
+Cultural Feast:
+dec 4th on library lawn (1-3pm)
+8-9pm (also dec 4th) in the library
+1-3pm dec 5th
 
-
-
-
+Open mic outside 3-5pm friday @eccbsu on instagram for flyer
 
 
