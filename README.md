@@ -204,4 +204,16 @@ dec 4th on library lawn (1-3pm)
 
 Open mic outside 3-5pm friday @eccbsu on instagram for flyer
 
+# Meeting Ten
 
+Bylaw change that does nothing
+antiwar club gets approved
+badmitton club gets approved (see below) 
+Meeting Days:
+● Thursdays: 4:30PM - 6:30PM
+● Saturdays: 10AM - 12PM
+○ Tuesdays: 4:30PM - 6:30PM if the gym
+is not available on Saturdays.
+
+They're going to give out ICC Awards (just because)
+finance director quit
