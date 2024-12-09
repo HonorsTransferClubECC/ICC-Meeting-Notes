@@ -217,3 +217,7 @@ is not available on Saturdays.
 
 They're going to give out ICC Awards (just because)
 finance director quit
+
+# Meeting Eleven
+voting for icc vice president
+Barkada club having a Christmas Party on Friday (more info on their insta)
